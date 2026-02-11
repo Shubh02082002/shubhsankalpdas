@@ -2,8 +2,12 @@
 
 Product @ Dezerv | Placement Coordinator, BITS Pilani
 
+Connect with me:
+
 LinkedIn: https://www.linkedin.com/in/shubhsankalpdas/
 
+X/Twitter : https://x.com/shubh_das02/
 
-Notion:  https://bitter-sprout-26c.notion.site/3008fc579ee88081aad8eb8db839bd94/
+Medium : https://medium.com/@shubhsankalpdas/
 
+Substack : https://substack.com/@shubhdas/
